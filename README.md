@@ -1,1 +1,1 @@
-# Ignite Lab :rocket
+# Ignite Lab 🚀
